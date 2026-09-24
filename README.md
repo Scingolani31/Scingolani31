@@ -8,7 +8,7 @@ Animal Lover 🐾
 
 100 de quesito 🧀
 
-Estadiante 📚 Analista en Sistemas 
+Estudiante 📚 Analista en Sistemas 
 
 Lenguajes
 
