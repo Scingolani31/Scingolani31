@@ -1,8 +1,11 @@
 Datos personales
 
 Sofi Cingolani 
+
 Vegetariana 🌱
+
 Animal Lover 🐾
+
 100 de quesito 🧀
 
 Estadiante 📚 Analista en Sistemas 
